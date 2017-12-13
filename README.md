@@ -23,4 +23,4 @@ Pax is a good boy and should be raise rightly so
 
 6) Allow for playtime
 
-![Alt text](https://i.imgur.com/ZzY4Fb2.gifv)
+![Alt text](https://i.imgur.com/ZzY4Fb2.mp4)
