@@ -3,24 +3,24 @@ Pax is a good boy and should be raise rightly so
 
 1) Make sure he's not stinky by giving him a bath
 
-![picture alt](https://imgur.com/YCtp2ct)
+![Alt text](https://i.imgur.com/YCtp2ct)
 
 2) Give him plenty of attention
 
-https://imgur.com/FoK2dmG
+![Alt text](https://i.imgur.com/FoK2dmG.jpg)
 
 2) Make sure he does his homework before bed
 
-https://imgur.com/2JnCxjj
+![Alt text](https://i.imgur.com/2JnCxjj.jpg)
 
 4) Tuck him into bed
 
-https://imgur.com/wutDU4C
+![Alt text](https://i.imgur.com/wutDU4C.jpg)
 
 5) Make sure he gets plenty of sleeep
 
-https://imgur.com/6gzxGOS
+![Alt text](https://i.imgur.com/6gzxGOS)
 
 6) Allow for playtime
 
-https://imgur.com/ZzY4Fb2
+![Alt text](https://i.imgur.com/ZzY4Fb2.gifv)
