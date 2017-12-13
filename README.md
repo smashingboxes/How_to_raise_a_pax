@@ -3,7 +3,7 @@ Pax is a good boy and should be raise rightly so
 
 1) Make sure he's not stinky by giving him a bath
 
-![Alt text](https://i.imgur.com/YCtp2ct)
+![Alt text](https://i.imgur.com/YCtp2ct.jpg)
 
 2) Give him plenty of attention
 
@@ -19,7 +19,7 @@ Pax is a good boy and should be raise rightly so
 
 5) Make sure he gets plenty of sleeep
 
-![Alt text](https://i.imgur.com/6gzxGOS)
+![Alt text](https://i.imgur.com/6gzxGOS.jpg)
 
 6) Allow for playtime
 
