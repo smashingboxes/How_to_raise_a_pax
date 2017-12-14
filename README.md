@@ -1,24 +1,26 @@
-# How_to_raise_a_pax
-Pax is a good boy and should be raise rightly so
+# How to raise a Pax
+Instruction for the caring and feeding of a Pax.
 
-1) Make sure he's not stinky by giving him a bath
-
-![Alt text](https://i.imgur.com/YCtp2ct.jpg)
-
-2) Give him plenty of attention
+1. Give him plenty of attention
 
 ![Alt text](https://i.imgur.com/FoK2dmG.jpg)
 
-2) Make sure he does his homework before bed
+2. Make sure he's not stinky by giving him a bath
+
+![Alt text](https://i.imgur.com/YCtp2ct.jpg)
+
+2. Make sure he does his homework before bed
 
 ![Alt text](https://i.imgur.com/2JnCxjj.jpg)
 
-4) Tuck him into bed
+4. Tuck him into bed
 
 ![Alt text](https://i.imgur.com/wutDU4C.jpg)
 
-5) Make sure he gets plenty of sleeep
+5. Make sure he gets plenty of sleeep
 
 ![Alt text](https://i.imgur.com/6gzxGOS.jpg)
 
-![Alt Text](https://i.imgur.com/ZzY4Fb2.gif)
+6. Have lots of fun
+
+![Alt Text](/images/pax.gif)
