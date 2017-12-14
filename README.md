@@ -9,18 +9,22 @@ Instruction for the caring and feeding of a Pax.
 
 ![Alt text](https://i.imgur.com/YCtp2ct.jpg)
 
-3. Make sure he does his homework before bed
+3. Bring Pax to work and ensure he earns his keep
+
+![Alt text](/images/pax-typing.gif)
+
+4. Make sure he does his homework before bed
 
 ![Alt text](https://i.imgur.com/2JnCxjj.jpg)
 
-4. Tuck him into bed
+5. Tuck him into bed
 
 ![Alt text](https://i.imgur.com/wutDU4C.jpg)
 
-5. Make sure he gets plenty of sleep
+6. Make sure he gets plenty of sleep
 
 ![Alt text](https://i.imgur.com/6gzxGOS.jpg)
 
-6. Have lots of fun
+7. Have lots of fun
 
 ![Alt Text](/images/pax.gif)
