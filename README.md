@@ -24,3 +24,5 @@ Instruction for the caring and feeding of a Pax.
 6. Have lots of fun
 
 ![Alt Text](/images/pax.gif)
+
+blah blah blah
