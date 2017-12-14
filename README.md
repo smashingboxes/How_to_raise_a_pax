@@ -9,7 +9,7 @@ Instruction for the caring and feeding of a Pax.
 
 ![Alt text](https://i.imgur.com/YCtp2ct.jpg)
 
-2. Make sure he does his homework before bed
+3. Make sure he does his homework before bed
 
 ![Alt text](https://i.imgur.com/2JnCxjj.jpg)
 
@@ -17,7 +17,7 @@ Instruction for the caring and feeding of a Pax.
 
 ![Alt text](https://i.imgur.com/wutDU4C.jpg)
 
-5. Make sure he gets plenty of sleeep
+5. Make sure he gets plenty of sleep
 
 ![Alt text](https://i.imgur.com/6gzxGOS.jpg)
 
